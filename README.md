@@ -1,0 +1,1 @@
+# vk-party2026.github.io
